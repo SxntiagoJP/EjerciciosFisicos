@@ -14,3 +14,7 @@ sos. ¡Prepárate para desafiar tu cuerpo con precisión y fuerza!
 -Comienza con un calentamiento de 5-10 minutos, activando todo tu cuerpo con movimientos suaves.
 -Realiza ejercicios de Pilates como el "Cien", "Roll Up", y "Single Leg Circle" durante 20-30 minutos. Concentra tu mente en el control de cada movimiento.
 Termina con una serie de estiramientos para alargar los músculos y liberar tensiones.
+ 
+## Consejos
+-Mantén una hidratación adecuada, tus músculos necesitan estar bien alimentados para rendir al máximo.
+-Escoge un ritmo que puedas mantener, pero asegúrate de trabajar con precisión en cada repetición. ¡Es más importante la calidad que la cantidad!
