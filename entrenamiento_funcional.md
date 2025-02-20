@@ -8,3 +8,7 @@ El entrenamiento funcional se centra en movimientos que imitan las acciones diar
 -Aumenta el equilibrio y la coordinación, mejorando tu agilidad.
 -Previene lesiones al fortalecer músculos clave y mejorar la postura.
 
+##Instrucciones
+-Comienza con un calentamiento dinámico de 5-10 minutos para activar todo tu cuerpo.
+-Realiza ejercicios funcionales (como sentadillas, flexiones, saltos y movimientos con kettlebells) durante 20-30 minutos. ¡Siente cómo tu cuerpo responde a cada desafío!
+-Termina con un enfriamiento y estiramientos para asegurar que tu cuerpo se recupere de manera óptima.
