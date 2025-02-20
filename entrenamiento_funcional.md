@@ -12,3 +12,7 @@ El entrenamiento funcional se centra en movimientos que imitan las acciones diar
 -Comienza con un calentamiento dinámico de 5-10 minutos para activar todo tu cuerpo.
 -Realiza ejercicios funcionales (como sentadillas, flexiones, saltos y movimientos con kettlebells) durante 20-30 minutos. ¡Siente cómo tu cuerpo responde a cada desafío!
 -Termina con un enfriamiento y estiramientos para asegurar que tu cuerpo se recupere de manera óptima.
+ 
+##Consejos
+-Mantén una hidratación adecuada, tus músculos necesitan agua para rendir al máximo.
+-Escoge un ritmo que puedas mantener, pero no te limites, ¡cada repetición cuenta hacia una versión más fuerte de ti mismo!
